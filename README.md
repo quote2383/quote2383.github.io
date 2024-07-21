@@ -1,1 +1,3 @@
-# quote2383.github.io
+- [https://www.reddit.com/user/Fantastic_Hunter_298/](https://www.reddit.com/user/Fantastic_Hunter_298/)
+- [https://x.com/Quote2383/status/1814671199856988623](https://x.com/Quote2383/status/1814671199856988623)
+- [https://quote2383.quora.com/](https://quote2383.quora.com/)
